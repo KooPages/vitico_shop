@@ -1,1 +1,0 @@
-# vitico_shop
